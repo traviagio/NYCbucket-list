@@ -9,8 +9,6 @@ NYC Bucket List
 * Ice Skate in Central Park
 * Watch an old school movie in Bryant Park 
 * See the Mayor LaGuardia inspired play named The Little Flower
-* Run in Central Park and finish up with some beers in Sheep Meadow (Can easily turn into a beer run as well.)
-
 * Take the Staten Island Ferry
 * Read a book in the Strand Bookstore by Union Sq, that places is fool of energy
 * Shop at the little streets of SoHo
@@ -18,6 +16,7 @@ NYC Bucket List
 * Chill at Chelsea piers
 * Spend a day at a co-working space (Green Spaces in TiBeCa, wasssaaap!)
 * Stop for a second and listen to the singers in the metro stations, some of them are extremely talanted. 
+* Run in Central Park and finish up with some beers in Sheep Meadow (Can easily turn into a beer run as well.)
 * Get lost in Brooklyn
 
 
