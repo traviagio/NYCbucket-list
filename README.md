@@ -35,4 +35,4 @@ NYC Bucket List
 
 #### Things on my bucket list
 
-* Get a fucking apartment in SoHo or Chelsea
+* Get an apartment in SoHo or Chelsea
